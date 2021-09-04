@@ -1,0 +1,2 @@
+# Shopee-no-reponsive
+ 
